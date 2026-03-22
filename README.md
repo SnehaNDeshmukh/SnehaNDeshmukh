@@ -1,6 +1,7 @@
 # Hi there, I'm Sneha Nilkanth Deshmukh 👋
 
 > Cybersecurity Enthusiast | SIEM & Network Security | Aspiring CISO
+<img width="2000" height="600" alt="Blue Futuristic Technology LinkedIn Background Photo (1)" src="https://github.com/user-attachments/assets/1cc3ff08-609e-465b-8d08-cf61dbec3d73" />
 
 ---
 
